@@ -1,2 +1,3 @@
 # LOOKAH ONLINE HEADSHOP
 ## Lookah is an online headshop also known as a smoke shop offering premium design [glass rig](https://www.lookah.com/dab-rigs.html), cool [water pipes](https://www.lookah.com/bongs-and-water-pipes.html) under our [Lookah Glass](https://www.lookah.com/bongs-and-water-pipes.html) and [Tataoo Glass](https://www.lookah.com/dab-rigs.html?features_hash=314-1203) brands.
+Lookah original design glass pipes and our platinum range of water pipes are sure to impress customers. If you like fancy heady glass, check out the unique dab rigs for sale in the glass section of our smoke shop. Tataoo glass is not like the cheap dab rigs for sale on Amazon. These are pieces of art in their own right and make a great addition to any collection.
